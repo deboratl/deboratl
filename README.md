@@ -17,4 +17,3 @@
   
 <br>
 
-Amante de tecnologia, buscando minha primeira vaga de programadora / Estagiário 
